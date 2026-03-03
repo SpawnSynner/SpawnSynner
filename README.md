@@ -1,4 +1,5 @@
 Violet, V, sometimes Viola or Nightshade  
+migrating to this github ^^  
 18 y/o. plural she/her preferred (her*selves* rather than her*self*)  
 i am Spawnist and a two time copinglinker!! specifically their nightshade skin  
 ^ canon two time is a *Spawn cultist* and not part of the real religion. remember this.  
