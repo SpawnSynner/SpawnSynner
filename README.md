@@ -13,7 +13,7 @@ pleeeease do not intentionally sexualise leon kennedy in front of me tankyou
 🌙 - offtab, asleep or afk, whisper me if you wanna interact  
 ⛔ - nonverbal. you can still walk up and boop me/talk to me, though!! i just won't respond with words  
 
-[pronouns.cc](https://pronouns.cc/@SpawnSynner) / [rentry](https://rentry.co/spawnsynner)  
+[pronouns.cc](https://pronouns.cc/@SpawnSynner) / [rentry](https://rentry.co/spawnsynner) / [sign straw](https://spawnsinner.straw.page/)  
   
 ## Interests *?*
 *favs/comf are **bold***
