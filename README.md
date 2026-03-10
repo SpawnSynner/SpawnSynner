@@ -24,6 +24,7 @@ if my pony is sleeping, chances are i'm asleep irl too
 - POSTAL
 - HATRED
 - **Duke Nukem**
+- Outlast
 - RemedyVerse
 - Deltarune/Undertale
 - ULTRAKILL
